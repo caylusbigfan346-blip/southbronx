@@ -2,7 +2,7 @@
 
 Dive into the gritty streets of South Bronx: The Trenches on Roblox with this powerful, keyless script that's taking the community by storm! 🌃🔥 This tool delivers unbeatable advantages like infinite money to stack cash endlessly, auto farm systems to grind resources without lifting a finger, silent aim for precise shots that stay under the radar, and tons more features to dominate every corner of the map. Whether you're roleplaying as a civilian building wealth or rising through the ranks in intense street scenarios, this script enhances your gameplay massively. No keys required—just copy, paste, and execute for instant power-ups. It's designed for seamless use, helping you earn big, move fast, and stay ahead in this immersive NYC-inspired hood experience. Ready to level up your sessions? Let's break down everything you need to know! 📈
 
-## [🔥 Download South Bronx Script](https://southbronxscr.github.io/southbronx/) 🚀
+## [🔥 Download South Bronxhnjhb Script](https://southbronxscr.github.io/southbronx/) 🚀
 
 ## Features 🌟
 
